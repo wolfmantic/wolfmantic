@@ -7,3 +7,4 @@
   <br><img src='https://64.media.tumblr.com/91b748f3c8ab0dd49fbfd66e857dc6b8/1fb39223b20e4f22-fd/s250x400/5d7518dec2faae4339c61706c89e3fb31b16d702.gifv'> <img src='https://files.catbox.moe/sc8ljp.gif'> <img src='https://64.media.tumblr.com/7988bd4d951f2ed69ed7719f8ff1cf5d/415a1175c7f3ef38-a5/s250x400/a14a390acfff0f29af568f28cf64fa12f4937e4f.gifv'> 
   
 <br> <b>dni</b> tcc, dmmd, okegom, btd or egregiously problematic media.
+<br> under 18 interact minimally.
