@@ -1,7 +1,7 @@
 <div align='center'> 
   <img src='https://64.media.tumblr.com/d2fc35206f2b62751645c531b66638b5/60198fbe7c838325-d1/s75x75_c1/9f9cb45a6f1702fa0054d7e4c33bad59aaf4b781.gifv'>
  <br><b>M</b>IA‎ / <b>W</b>OLF ‎(<i>she any</i>) <i>adult.</i> 
-  <br> <i>dx'd autism & ptsd. chronically ill.</i> <img src='https://64.media.tumblr.com/f10384e799ef52d469decc6fa7074225/872cdb22ea8617e0-0d/s75x75_c1/f1e7c1c1916faca89e9b6a74a3c6d968ddcf2d61.gifv'>
+ <br> <i>dx'd autism & ptsd. chronically ill.</i> <img src='https://64.media.tumblr.com/f10384e799ef52d469decc6fa7074225/872cdb22ea8617e0-0d/s75x75_c1/f1e7c1c1916faca89e9b6a74a3c6d968ddcf2d61.gifv'>
  <br> <img src='https://files.catbox.moe/xi309r.png' title='art by mmmme'>
   <br><img src='https://64.media.tumblr.com/9de58bd3cf2f502360a6f2078a06a890/33482cf83af8f0c3-5f/s250x400/709d02324b034b5f57f060a1f12f68789ca1a718.gifv'> <img src='https://64.media.tumblr.com/27a6dc37f3b0cedb93fb7fd72d2cd101/68e393feeeee9c91-5a/s250x400/c037452893f585643ef51c188dc5825e5765e13b.gifv'>
   <br> <img src='https://files.catbox.moe/sc8ljp.gif'> <img src='https://64.media.tumblr.com/7988bd4d951f2ed69ed7719f8ff1cf5d/415a1175c7f3ef38-a5/s250x400/a14a390acfff0f29af568f28cf64fa12f4937e4f.gifv'> 
