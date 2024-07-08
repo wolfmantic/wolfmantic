@@ -6,4 +6,4 @@
   <br><img src='https://64.media.tumblr.com/9de58bd3cf2f502360a6f2078a06a890/33482cf83af8f0c3-5f/s250x400/709d02324b034b5f57f060a1f12f68789ca1a718.gifv'> <img src='https://64.media.tumblr.com/27a6dc37f3b0cedb93fb7fd72d2cd101/68e393feeeee9c91-5a/s250x400/c037452893f585643ef51c188dc5825e5765e13b.gifv'>
   <br> <img src='https://files.catbox.moe/sc8ljp.gif'> <img src='https://64.media.tumblr.com/7988bd4d951f2ed69ed7719f8ff1cf5d/415a1175c7f3ef38-a5/s250x400/a14a390acfff0f29af568f28cf64fa12f4937e4f.gifv'> 
 <br> <img src='https://64.media.tumblr.com/69b9919d0857ee1a7512b48d8b5d5726/33482cf83af8f0c3-b1/s75x75_c1/d2a287933cd00e4bf3ddde2d9a08951f3b6c0fab.gifv'> i hide/mute freely. dni proship.
-<br> <i>under 18 interact minimally, thx!</i>
+
