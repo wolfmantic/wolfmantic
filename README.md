@@ -11,4 +11,4 @@
 
 ***
 </div>
-<div align='right'><sub>life does not work in absolutes. we only have eachother, be kind.</sub>
+<div align='right'><sub>you will not be able to grow properly until you can put your roots down.</sub>
