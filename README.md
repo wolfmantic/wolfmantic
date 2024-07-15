@@ -10,4 +10,4 @@
 
 ***
 </div>
-<div align='right'><sub>life is not absolute, we only have eachother. be kind.</sub>
+<div align='right'><sub>life is not absolute, we only have eachother, be kind.</sub>
