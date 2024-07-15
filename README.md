@@ -7,4 +7,7 @@
   <br> <img src='https://files.catbox.moe/sc8ljp.gif'> <img src='https://64.media.tumblr.com/7988bd4d951f2ed69ed7719f8ff1cf5d/415a1175c7f3ef38-a5/s250x400/a14a390acfff0f29af568f28cf64fa12f4937e4f.gifv'> 
 <br> <img src='https://64.media.tumblr.com/69b9919d0857ee1a7512b48d8b5d5726/33482cf83af8f0c3-b1/s75x75_c1/d2a287933cd00e4bf3ddde2d9a08951f3b6c0fab.gifv'> i hide/mute freely. dni proship.
 
+
 ***
+</div>
+<div align='right'><sub>life is not absolute, we only have eachother. be kind.</sub>
