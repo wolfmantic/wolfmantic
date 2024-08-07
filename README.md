@@ -10,5 +10,13 @@
 
 
 ***
+
 </div>
+<details>
+<summary>INTERESTS</summary>
+  <br> <sup>under construction...</sup>
+<br>
+  <b>misc:</b> <i>philosophy <sup>(i ♥︎ <a href="https://www.youtube.com/@PhilosophyTube">philosophy tube</a>)</sup>, marine life, old sites/forums (deviantart, gaiaonline, myspace, pokefarm, etc.), cooking. </i>
+<br><br><b>games:</b> <i>pokemon, elden ring, lobotomy corporation, odin sphere, night in the woods, stardew valley, hollow knight, disco elysium, darkest dungeon, fear and hunger (1+2), final fantasy (vii + xv), zero escape, endless ocean (1+2).</i>
+</details>
 <div align='right'><sub>you will not be able to grow properly until you can put your roots down.</sub>
