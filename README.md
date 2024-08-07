@@ -14,10 +14,10 @@
 </div>
 <details>
 <summary>INTERESTS</summary>
-  <br> <sup>under construction... i am critical of all my interests.</sup>
+  <br> <sup>under construction... i am critical of all my interests! i do not consider myself apart of any fandoms.</sup>
 <br>
   <b>misc:</b> <i>philosophy <sup>(i ♥︎ <a href="https://www.youtube.com/@PhilosophyTube">philosophy tube</a>)</sup>, marine life, old sites/forums <sup>(deviantart, gaiaonline, myspace, pokefarm, etc.)</sup>, cooking, mythological creatures. </i>
-<br><br><b>games:</b> <i>pokemon, elden ring, lobotomy corporation, odin sphere, night in the woods, stardew valley, hollow knight, disco elysium, darkest dungeon, fear and hunger <sup>(1+2)</sup>, final fantasy <sup>(vii + xv)</sup>, zero escape, endless ocean <sup>(1+2)</sup>, touhou <sup>(just got into it ^^)</sup>, persona series, signalis.</i>
-  <br><br><b>media:</b> <i>xxxholic, owl house, dungeon meshi, total drama <sup>(since 2009-2010!)</sup>, spooky month <sup>(fans iwc... ty!)</sup>, <a href="https://www.youtube.com/@noodlefunny">noodlefunny</a>, <a href="https://www.youtube.com/@JacobGeller">jacob geller</a>, RTVS CREW, <a href="https://www.youtube.com/@SnapCube">snapcube</a>, <a href="https://www.youtube.com/@Lythero">lythero</a>.</i>
+<br><br><b>games:</b> <i>pokemon, elden ring, lobotomy corporation, disgaea, odin sphere, night in the woods, stardew valley, hollow knight, disco elysium, darkest dungeon, fear and hunger <sup>(1+2)</sup>, final fantasy <sup>(vii + xv)</sup>, zero escape, endless ocean <sup>(1+2)</sup>, touhou <sup>(just got into it ^^)</sup>, persona series, signalis, guilty gear.</i>
+  <br><br><b>media:</b> <i>xxxholic, owl house, dungeon meshi, my little pony, total drama <sup>(since 2009-2010!)</sup>, spooky month <sup>(fans iwc... ty!)</sup>, the guy who didn't like musicals, my lesbian expreience with loneliness, <a href="https://www.youtube.com/@noodlefunny">noodlefunny</a>, <a href="https://www.youtube.com/@JacobGeller">jacob geller</a>, RTVS CREW, <a href="https://www.youtube.com/@SnapCube">snapcube</a>, <a href="https://www.youtube.com/@Lythero">lythero</a>.</i>
 </details>
 <div align='right'><sub>you will not be able to grow properly until you can put your roots down.</sub>
