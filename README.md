@@ -1,6 +1,6 @@
 ***
 <div align='center'> 
-  <img src='https://files.catbox.moe/x6h97u.png' title='art by jeansagain'>
+  <img src='https://64.media.tumblr.com/525a3caad6742dac5b5b40be90f033f8/221364a369e553cf-c3/s400x600/6d0ab7ebec1e38916c984ccbbbcb2f3670b64ffd.gifv' title='YAY ODIN SPHERE'>
  <br><b>M</b>IA‎ / <b>W</b>OLF ‎(<i>she any</i>) <i>adult.</i> 
  <br> <sup>dx'd autism & ptsd. chronically ill.</sup> <img src='https://64.media.tumblr.com/f10384e799ef52d469decc6fa7074225/872cdb22ea8617e0-0d/s75x75_c1/f1e7c1c1916faca89e9b6a74a3c6d968ddcf2d61.gifv'> <sup>super introverted :<</sup>
   <p><img src='https://64.media.tumblr.com/9de58bd3cf2f502360a6f2078a06a890/33482cf83af8f0c3-5f/s250x400/709d02324b034b5f57f060a1f12f68789ca1a718.gifv'> <img src='https://64.media.tumblr.com/27a6dc37f3b0cedb93fb7fd72d2cd101/68e393feeeee9c91-5a/s250x400/c037452893f585643ef51c188dc5825e5765e13b.gifv'>
