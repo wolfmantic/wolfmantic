@@ -11,7 +11,7 @@
   <br> <img src='https://files.catbox.moe/c4fua8.png'> <img src='https://64.media.tumblr.com/d793d7c59c331b996a00dccc0a21e3fb/f76986030516137a-df/s250x400/83c4476021f888e774ff20c108733bd0e89a69db.gifv'> 
   <br> <img src='https://files.catbox.moe/j23sh0.webp'> <img src='https://files.catbox.moe/4m230y.webp'>
 <br> <img src='https://64.media.tumblr.com/69b9919d0857ee1a7512b48d8b5d5726/33482cf83af8f0c3-b1/s75x75_c1/d2a287933cd00e4bf3ddde2d9a08951f3b6c0fab.gifv'> i hide/mute freely. <a href="https://rentry.org/wolfoverwolf">additional info.</a> <a href=https://wolf.atabook.org/>atabook.</a>
-<br><sub> resource of the week: <a href=https://www.tumblr.com/manga-and-stuff/682067970299707392?source=share">artbook collection masterpost.</a> </sub>
+<br><sub> resource(s) of the week: <a href="https://rentry.org/mentalwealth">grounding techniques.</a> <a href="https://www.tumblr.com/manga-and-stuff/682067970299707392?source=share">artbook collection masterpost.</a> </sub>
 
 
 
